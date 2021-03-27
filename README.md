@@ -1,1 +1,0 @@
-# syarifsoden.github.io
